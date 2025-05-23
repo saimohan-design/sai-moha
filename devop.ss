@@ -1,1 +1,1 @@
-basic things 
+basic things you need top know first ok 
